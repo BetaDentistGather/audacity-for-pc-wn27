@@ -1,4 +1,4 @@
-# 
+# professional Audacity for PC | Audacity for Windows Panel | spectrogram-view + effects-library offers the most advanced Audacity for PC | Audacity for Windows panel, with
 
 
 
